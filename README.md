@@ -48,6 +48,7 @@ OTHER SHIT I KNOW THOUGH
 - minecraft
 - skibidi toilet/ij/HUGE JOKE PELAESE DONT KILL ME
 - lemon demon
+  (I know about more fandoms I'm just not in them)
 
 // KINS
 - john egbert☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ehwhahwhauawhawuahwawhwahr
@@ -55,6 +56,7 @@ OTHER SHIT I KNOW THOUGH
 - jake englis
 - tavros
 - karkat
+- jade
   
   
 
