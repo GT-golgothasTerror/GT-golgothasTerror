@@ -57,7 +57,9 @@ OTHER SHIT I KNOW THOUGH
 - tavros
 - karkat
 - jade
-  
+
+
+  Disc: vexinbakedbeans
   
 
 
