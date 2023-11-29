@@ -39,7 +39,7 @@
 - skibidi toilet.../hj
 
 // FANDOMS
-MAIN: HOMESTUCK (Unfortunately)
+HOMESTUCK (Unfortunately)
 OTHER SHIT I KNOW THOUGH 
 - cookie run
 - steven universe
