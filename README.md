@@ -54,6 +54,7 @@ OTHER SHIT I KNOW THOUGH
 - lil hal
 - jake englis
 - tavros
+- karkat
   
   
 
