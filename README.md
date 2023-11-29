@@ -46,7 +46,7 @@ OTHER SHIT I KNOW THOUGH
 - the owl house
 - pokemon
 - minecraft
-- skibidi toilet/ij/HUGE JOKE PELAESE DONT KILL ME ITS ALSO
+- skibidi toilet/ij/HUGE JOKE PELAESE DONT KILL ME
 - lemon demon
 
 // KINS
