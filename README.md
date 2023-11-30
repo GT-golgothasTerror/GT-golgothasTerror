@@ -40,7 +40,7 @@
 
 // FANDOMS
 - HOMESTUCK (Unfortunately)
-- OTHER SHIT I KNOW THOUGH 
+ OTHER SHIT I KNOW THOUGH 
 - cookie run
 - steven universe
 - the owl house
