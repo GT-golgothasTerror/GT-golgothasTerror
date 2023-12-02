@@ -43,7 +43,7 @@
 - john egbert☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ehwhahwhauawhawuahwawhwahr
 - lil hal
 - jake englis
-theres more but i don't feel like listing them!!!111 LLLLL!!!! 
+- theres more but i don't feel like listing them!!!111 LLLLL!!!! 
 
   Disc: vexinbakedbeans
   
