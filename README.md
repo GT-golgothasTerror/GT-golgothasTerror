@@ -13,6 +13,7 @@
 - They/them
 - It/its
 - xe/xem
+- wind/winds
 
 // GENDER, SEXUALITY AND OTHE RHSIT
 - Genderfluid
@@ -53,10 +54,8 @@
 - john egbert☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ehwhahwhauawhawuahwawhwahr
 - lil hal
 - jake englis
-- tavros
-- karkat
-- jade
-
+- calliope
+- calibor
 
   Disc: vexinbakedbeans
   
