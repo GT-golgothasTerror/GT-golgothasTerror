@@ -39,23 +39,11 @@
 - if ur just extremely fucking weird in general
 - skibidi toilet.../hj
 
-// FANDOMS
-- HOMESTUCK (Unfortunately)
-- cookie run
-- steven universe
-- the owl house
-- pokemon
-- minecraft
-- skibidi toilet/ij/HUGE JOKE PELAESE DONT KILL ME
-- lemon demon
-  (I know about more fandoms I'm just not in them)
-
 // KINS
 - john egbert☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ehwhahwhauawhawuahwawhwahr
 - lil hal
 - jake englis
-- calliope
-- calibor
+theres more but i don't feel like listing them!!!111 LLLLL!!!! 
 
   Disc: vexinbakedbeans
   
