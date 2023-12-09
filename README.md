@@ -1,4 +1,4 @@
-☆GT-golgothasTerror☆
+☆EB-ectoBiologist☆
 
 // NAME(S)
 - VEX
